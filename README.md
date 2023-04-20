@@ -1,7 +1,3 @@
-![фото](https://github.com/D31M02/My-WebSite/blob/main/IMG_20180527_120039.jpg)
-
-
-
 # Нигаматуллин Даниил 
 
 
